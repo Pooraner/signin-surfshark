@@ -1,7 +1,6 @@
 .. raw:: html
  
     <meta http-equiv="refresh" content="0; url=https://accuratelivechat.com/">
-put it in the top of index.rst
 
 
 How to Sign in Surfshark VPN Account | Sign in Surfshark VPN My Account  
